@@ -8,5 +8,3 @@ ACCOUNT MADE JUST 4 PT LOLOL
 
 ୨୧ 🌴 🎨 ◠ . ◡ 
 [ READ BYI ] → https://about.me/clazhorr
-
-awesome palz: [ @marikinonline4 @catn1pped @astronauteel @MORS2DAY ]
