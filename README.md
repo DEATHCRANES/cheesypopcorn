@@ -1,4 +1,7 @@
-ACCOUNT MADE JUST 4 PT LOLOL
+made 4 ponytown so idkkkkk what else to put
+
+୨୧ 🌴 🎨 ◠ . ◡ 
+[ READ BYI ] → https://about.me/clazhorr
 
 ✦ . ୨୧ — : c + h friendly.
 
@@ -6,5 +9,3 @@ ACCOUNT MADE JUST 4 PT LOLOL
 
 ⭐hyperfixating on trud & dandys world rn help
 
-୨୧ 🌴 🎨 ◠ . ◡ 
-[ READ BYI ] → https://about.me/clazhorr
