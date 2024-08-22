@@ -1,4 +1,8 @@
-#1 bloxxer fan from trud
-btw love u @catn1pped /p
+✦ . ୨୧ — : c + h friendly.
 
-https://about.me/clazhorr
+🌺 💤 . all pronouns . ♡ [ preferred xe / him /they ! ] , ships dniuid/f ✨
+
+⭐hyperfixating on trud & dandys world rn help
+
+୨୧ 🌴 🎨 ◠ . ◡ 
+[ READ BYI ] → https://about.me/clazhorr
