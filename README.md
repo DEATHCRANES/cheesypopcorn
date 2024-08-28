@@ -1,4 +1,5 @@
-discord: .stupidlyfun_69447
+🐾 ୨୧  . ┆
+
 made 4 ponytown so idkkkkk what else to put
 
 ୨୧ 🌴 🎨 ◠ . ◡ 
@@ -6,7 +7,4 @@ made 4 ponytown so idkkkkk what else to put
 
 ✦ . ୨୧ — : c + h friendly.
 
-🌺 💤 . all pronouns . ♡ [ preferred xe / him /they ! ] , ships dniuid/f ✨
-
-⭐hyperfixating on trud & dandys world rn help
-
+🌺 💤 . all pronouns . ♡ [ preferred xe / him /they ! ] , ships dniuid/f/unless put in name to int 
