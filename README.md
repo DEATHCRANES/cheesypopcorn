@@ -1,5 +1,4 @@
-https://about.me/clazhorr 
-(it actually isn't "clazhor" it's clazhorr HELP SORRY YALL) 
+↓
 
 💣 . . ; ✦ ︴˙∘. INTRODUCING: 'CLAZHOR'
 
