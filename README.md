@@ -7,14 +7,14 @@ https://about.me/clazhorr
 ○ ✦ ;  ALL PRONOUNS;(preferred xe/he/they) 
 
 
-                     ✦
+             .        ✦       . 
 
 . . / 🕊 ; NAMES/NICKNAME PREFERRED TO BE CALLED: ↓
 
 ( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie .  ) 
 
 
-                     ✦
+            .         ✦       . 
 
 . . / 🦂 ; ✦ [ PLZ INTERACT !] 💣
 
@@ -35,4 +35,4 @@ https://about.me/clazhorr
 • ; interact any fandom atp, I'd love to learn more about others! 
 
 
-                     ✦
+           .          ✦        . 
